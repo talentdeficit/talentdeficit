@@ -1,4 +1,4 @@
-### Hi there 👋
+### i have no good ideas for this yet
 
 <!--
 **talentdeficit/talentdeficit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
